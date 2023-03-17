@@ -1,6 +1,5 @@
 # HSA-L3-user-metrics
 
-![negr](https://shpilivili.cc/uploads/posts/2022-01/1641395825_3-shpilivili-cc-p-porno-malenkii-pisyun-negra-4.jpg)
 
 Event name "currnecy"
 
